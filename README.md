@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @aytorearikana
-- 🌱 I’m currently learning python. 
 - 📫 How to reach me www.linkedin.com/in/aytöre-arıkan-b62931158 
