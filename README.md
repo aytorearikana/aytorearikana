@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @aytorearikana
-- 📫 How to reach me www.linkedin.com/in/aytöre-arıkan-b62931158 
+-
